@@ -2,7 +2,8 @@
 - 👀 I’m interested in science
 - 🌱 I’m currently learning science
 - 💞️ I’m looking to collaborate on science
-- 📫 How to reach me 
+- 📫 How to reach me science
+
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i was born in the summer 
 
